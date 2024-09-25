@@ -17,4 +17,16 @@
  : <img src="https://nyaa.neocities.org/shrines/shrines%20css/chiikawa/chiikawaemb3_chara_img.png" height="60" /> :
 
 ---
+# fun facts
+
+- i have a dog + a cat, despite the sterotype of dogs and cats not getting along
+
+- ive done multiple sports, though not many suited, ( i stuck with archery )
+
+- i love decorating a LOT
+
+---
+
+
+
 more coming soon prolly <img src="https://imgcdn.sigstick.com/eFElt5N5NYdwUYTRkmHo/1.thumb128.png" alt="yo" height="25" />
